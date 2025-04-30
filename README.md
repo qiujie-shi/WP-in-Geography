@@ -32,7 +32,7 @@ We offer a range of Widening Participation programmes to give school pupils an i
 
 ## University of Bristol Widening Participation resources
 ### For undergraduate study
-•	Please find more information on Widening Participation resources in the Faculty of Science and Engineering, [here](https://www.bristol.ac.uk/science-engineering/faculty-outreach-activities/talks-in-schools/).
+•	Please find more information on Widening Participation resources in the Faculty of Science and Engineering, [here](https://www.bristol.ac.uk/science-engineering/faculty-outreach-activities/).
 
 •	Please find more information on Widening Participation resources, including offer information (contextual offers and guaranteed offers) at the University of Bristol, [here](https://www.bristol.ac.uk/study/outreach/#information).
 
